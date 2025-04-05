@@ -1,4 +1,4 @@
-# 🔥 Play *House of Hazards Unblocked* – The Ultimate Multiplayer Chaos Game!
+# 🔥 Play *House of Hazards Unblocked Games* – The Ultimate Multiplayer Chaos Game!
 
 Looking for an **epic**, **crazy**, and absolutely **unstoppable** game to play with friends? Say hello to **House of Hazards Unblocked** – the **legendary multiplayer party game** that blends **chaotic action**, **hilarious traps**, and **wild escapes** into one unforgettable experience.
 
