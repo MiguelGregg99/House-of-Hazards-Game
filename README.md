@@ -2,6 +2,8 @@
 
 Looking for an **epic**, **crazy**, and absolutely **unstoppable** game to play with friends? Say hello to **House of Hazards Unblocked** – the **legendary multiplayer party game** that blends **chaotic action**, **hilarious traps**, and **wild escapes** into one unforgettable experience.
 
+![House of Hazards](https://github.com/user-attachments/assets/2aa41d9b-c78b-4e8f-b4d9-a4cdaae43ac9)
+
 ---
 
 ## 🕹️ What is House of Hazards?
